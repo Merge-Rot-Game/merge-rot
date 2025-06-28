@@ -1,4 +1,4 @@
-# MergeRot: The Ultimate Brainrot Merge Saga
+# [MergeRot: The Ultimate Brainrot Merge Saga](https://merge-rot.org/)
 
 Looking for a creative puzzle game that blends the chaotic energy of internet memes with strategic gameplay? **MergeRot** offers an unprecedented merging game experience! This unique puzzle game absorbs the essence of the "Brainrot" cultural phenomenon to create addictive gameplay that challenges your strategic thinking and knowledge of online trends.
 
